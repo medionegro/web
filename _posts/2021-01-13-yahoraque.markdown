@@ -1,0 +1,111 @@
+---
+layout: post
+title:  "¿Y ahora qué?"
+date:   2021-01-13 15:32:14 -0300
+categories: blog
+---
+
+![](/img/2021-01-13/ive-01.jpg)
+
+*Por: Julieta Siskindovich para MEDIONEGRO*
+
+**Algunas reflexiones sobre las potencias y desafíos de la Ley de Interrupción Voluntaria del Embarazo**
+
+## Una lucha, muchas luchas
+
+La lucha por el aborto legal, seguro y gratuito aglutinó, a lo largo de los años, diferentes tipos de reivindicaciones. Algunas de ellas se vincularon a las ideas de salud pública, derechos humanos y justicia social: acabar con las muertes evitables, reducir las consecuencias para la salud de procedimientos mal realizados, democratizar el acceso a información y tratamientos eficaces, atacar el lucro económico del negocio de la ilegalidad. Otras se orientaron a señalar la desigualdad de género y el carácter impuesto de la maternidad en los imaginarios sobre los proyectos de vida: diferenciar el aspecto reproductivo de la sexualidad de su carácter no reproductivo, criticar la división sexual del trabajo en el reparto de las medidas anticonceptivas y las tareas de reproducción de la vida (como gestar, criar, cuidar), y cuestionar el punitivismo moralista existente sobre el goce y el placer. Además, ciertos reclamos buscaron evidenciar algunas violencias existentes en torno a muchos embarazos: repudiar la cultura de la violación, denunciar el faltante de métodos anticonceptivos, exigir la implementación efectiva de la educación sexual integral y señalar la crueldad común a los procesos de embarazo, parto, aborto y puerperio en el contexto de un sistema médico hegemónico de control sobre los cuerpos gestantes. Por último, algunas demandas incorporaron al debate otros matices interpelando los sentidos comunes más difundidos sobre el tema: visibilizar procesos de embarazo protagonizados por identidades de género y orientaciones sexuales no contenidas en la de mujeres-cis o parejas cis-heterosexuales (como varones trans, no binaries y vinculaciones no cis-heterosexuales respectivamente)[^1], incluir la variable del deseo en la decisión de abortar y no solamente la “necesidad en última instancia”, desdramatizar las narrativas sobre el aborto y proponer nuevos sentidos alejados de la victimización y culpabilización.
+
+![](/img/2021-01-13/ive-02.jpg)
+
+Por todo esto y mucho más, la lucha por la despenalización y legalización del aborto no se limitó a reclamar el reconocimiento jurídico de la conocida y extendida práctica social. Se potenció junto a otras exigencias políticas para reclamar el respeto a la autonomía corporal y el disfrute sexual, rechazar la incidencia de las instituciones eclesiásticas y los modelos médicos paternalistas, y exigir la disponibilidad de recursos del estado para reducir las brechas socioeconómicas estructurales que reproducen injusticias y desigualdades. *Incluso si no sentimos una interpelación directa con la cuestión del aborto, su conquista como derecho es motivo suficiente de celebración colectiva por todo lo que repara material y simbólicamente en las luchas de los movimientos feministas, LGTTBIQ+, anticlericales, por la ampliación de derechos humanos, en defensa de la salud comunitaria, entre otros*.
+
+![](/img/2021-01-13/ive-03.jpg)
+
+Durante la madrugada del 30 de diciembre del 2020, el Senado Nacional convirtió en ley al proyecto de Interrupción Voluntaria del Embarazo (IVE) con 38 votos a favor, 29 en contra y una abstención, tras haber frenado la iniciativa en el año 2018 con 38 votos en contra y 31 a favor. La inminente promulgación de la ley 27.610 en el Boletín Oficial anunciada para el día 14 de enero del 2021 invita a repensar cuáles son algunos de los desafíos que tenemos por delante.
+
+![](/img/2021-01-13/ive-04.jpg)
+
+## Y entonces, ¿ahora ya ganamos?
+
+La Ley de IVE aprobada en el Congreso Nacional fue resultado de una lucha histórica, paulatina y reticular. Como forma terminal de un largo proceso construido lentamente, no traerá aparejados cambios automáticos en la conciencia y en la práctica de las personas, ni en el funcionamiento de las instituciones. Será, más bien, otra herramienta para continuar batallando por la efectiva implementación de los derechos sexuales, reproductivos y no reproductivos. Eso requiere que sigamos alertas y en movimiento, presionando por medidas que garanticen que el aborto sea gratuito y legal e incorporando la experiencia de los activismos que agregaron a la condición de legal el carácter de *libre, feminista, singular y autónomo*. *Libre* de regulaciones e imposiciones, *feminista* en su ética de cuidados contra las opresiones patriarcales, *singular* en la consideración de los motivos y trayectorias personales y *autónomo* en la toma de decisiones y gestión de estrategias.
+
+![](/img/2021-01-13/ive-05.jpg)
+
+Como activista de una colectiva socorrista (Socorro Rosa Córdoba), acompañé durante años procesos de aborto de manera telefónica, brindando previamente información confiable en espacios públicos, seguros, cuidados y accesibles. Con lluvia, con frío, en centros culturales amigables o en el banco caluroso de una plaza céntrica, día tras día y semana a semana, acompañamos a personas que, en contextos de clandestinidad, elegían abortar con activistas. Estas personas sabían que encontrarían una salida concreta a sus encrucijadas sin las burocracias, las estafas ni las hostilidades típicas de otros entornos. En nuestros encuentros no ocurría simplemente un traspaso de información. Allí proliferaban conjuros de todo tipo: relaciones no-jerárquicas, interacción en la diversidad, herramientas liberadas y sistematizadas para promover la autogestión, acompañamientos sin prejuicios atentos a las necesidades particulares de cada historia de vida, presencia en los momentos de dudas, nervios o temor. Los acompañamientos sostenidos durante estos años me aproximaron a los tortuosos y laberínticos recorridos transitados para abortar voluntariamente en el ámbito de la penalización. Desde este lugar situado, al calor de las reflexiones y debates colectivos y frente a la reciente aprobación de la Ley de IVE, emergen los siguientes interrogantes: ¿Qué victorias implica esta ley? ¿Cómo avanzar hacia su efectiva implementación? ¿Qué se puede aprender y conservar de los activismos feministas y transfeministas que acompañaron abortos en contextos de clandestinización? ¿Ante qué mecanismos de las lógicas estatales debemos permanecer alertas?
+
+![](/img/2021-01-13/ive-06.jpg)
+
+## 1. Conquistar nuevos derechos
+
+Ya sabemos que la legalización del aborto es una política pendiente indispensable para terminar con las muertes evitables, daños físicos y malestares psicológicos vinculados a su criminalización; para desterrar el mandato de la maternidad obligatoria cuya evasión puede ser castigada y habilitar la maternidad como elección entre otras posibilidades; para formalizar el derecho a decidir sobre su cuerpo de las personas con capacidad de gestar (y por ende, de abortar) sin coerciones ni tratos hostiles; para considerar a las mujeres, lesbianas, varones trans y personas no binarias como sujetxs morales capaces de tomar decisiones; para combatir la separación entre vida privada y vida pública y la histórica jerarquía de la segunda sobre la primera; para politizar y deconstruir los estereotipos asignados a las personas según su género.
+
+![](/img/2021-01-13/ive-07.jpg)
+
+## 2. Defender los derechos que supimos conseguir
+
+Sin embargo, para que la ley sea efectiva, es necesario atender a algunas cuestiones.
+
+Por un lado, deben *garantizarse recursos materiales y humanos*. Entre ellos, se destacan:
+
+- La planificación de **partidas presupuestarias**: aunque la ley de IVE no tendrá un impacto sobre el gasto público tal como alarmaban desde los sectores antiaborto, sino que, por el contrario, disminuirá los costos extraordinarios destinados a internaciones por complicaciones de abortos mal realizados, deben destinarse fondos específicos para garantizar los equipamientos necesarios.
+
+- La **formación profesional**: debido al clima clandestinizante de la práctica y a excepción de quienes se comprometieron y organizaron por el derecho a decidir[^2], gran porcentaje de profesionales de la salud desconocen los protocolos de realización de tratamientos efectivos y actualizados para abortar y niegan información a sus pacientes, brindan información imprecisa o derivan a grupos socorristas.
+
+- La **aprobación de los instrumentos y medicamentos recomendados para prácticas seguras**: debe proveerse el instrumental para realizar la Aspiración Manual EndoUnterina, AMEU -procedimiento que reemplaza al legrado- y aprobación y producción de mifepristona -que junto al misoprostol aumenta considerablemente la efectividad del tratamiento, disminuye los efectos secundarios y el dolor y se halla dentro de la “lista de medicamentos esenciales” recomendada por la Organización Mundial de la Salud.
+
+![](/img/2021-01-13/ive-08.jpg)
+![](/img/2021-01-13/ive-09.jpg)
+
+Por otro lado, es preciso desarrollar estrategias para evitar el uso corporativo e inadecuado de la *objeción de conciencia* permitida en el Proyecto aprobado en la Cámara Alta el 29 de diciembre y no contemplada en el proyecto de Ley de la Campaña por el Derecho al Aborto Legal. La objeción de conciencia se define como el derecho individual de eximirse de normas prescriptas por la ley por contrariar razones personales éticas o religiosas profundas, siempre y cuando esto no ocasione daños a terceros. Históricamente, surgió como una herramienta de grupos minoritarios para defenderse de imposiciones que consideraban incompatibles con sus valores tales como las guerras o el Servicio Militar Obligatorio. Sin embargo, en Argentina, la objeción de conciencia llegó a conformarse como una dinámica de boicot utilizada por profesionales de la salud que obstaculizaron no solamente el acceso a abortos no punibles desde 1921, sino también a derechos sexuales, reproductivos y no reproductivos (como la anticoncepción de emergencia, la colocación de DIU, la ligadura tubaria o la vasectomía). En estos casos, el problema es que la objeción de conciencia se utilizó para reproducir prácticas discriminatorias, vulnerar derechos y restringir la libertad de tomar decisiones sobre el propio cuerpo, vida y destino.
+
+Por estos motivos, resulta reprochable que la objeción de conciencia tenga lugar en el sector de salud pública, ya que, además de ser reivindicada desde una profesión que es voluntaria y rentada (y no una acción obligatoria o impuesta), se contrapone a las responsabilidades y los programas asumidos por el estado. Aplicada contra las leyes de salud sexual y (no) reproductiva, esta objeción más que ocuparse de respetar principios individuales de la moral, impone los propios ideales obstruyendo el acceso a servicios legales y prestaciones de salud. En síntesis, la objeción de conciencia que fue incluida a último momento, deberá estar fuertemente regulada en las instituciones públicas (con listados de las personas objetoras que deciden no aplicar la ley y estableciendo un porcentaje máximo que garantice la intervención) o directamente limitada a las instituciones privadas. De ninguna manera deberá permitirse para instituciones públicas en su totalidad ya que se conformarían verdaderos feudos dispuestos a eludir las políticas públicas que promueven la equidad de género[^3].
+
+![](/img/2021-01-13/ive-10.jpg)
+
+Por último, será importante disputar el significado del concepto “salud” contenido en los artículos 4 (inciso b) y 16 (punto 2) que autorizan el aborto luego de las 14 semanas de gestación. Según lo previsto en el proyecto aprobado, los abortos no tendrán restricciones hasta la semana 14, pero luego de este momento, podrán penarse con prisión de tres meses a un año, a menos que el embarazo sea producto de una violación o en caso de riesgo para la vida o la salud integral de la persona gestante. Tras la anunciada eliminación, mediante veto parcial del poder ejecutivo, de la palabra “integral” del proyecto aprobado, el concepto de salud se podría restringir a su uso más tradicional: como ausencia de enfermedad. La noción de *salud “integral”* resulta clave, ya que incorpora el bienestar físico, social, mental y emocional de la persona que decide interrumpir. Bajo este recorte, no solamente seguirán clandestinizados los abortos del segundo trimestre que no ingresen dentro de las causales salud o violación, sino que además se otorgará a profesionales de la salud el poder de determinar cuándo pueden realizarse, o no, quedando así librado a su propia subjetividad.
+
+![](/img/2021-01-13/ive-11.jpg)
+
+## 3. Aprender con los activismos
+
+Desde los activismos feministas y las redes de acompañamiento hemos resaltado algunas cuestiones que es útil recuperar:
+
+Más allá de lo establecido por el Código Penal, *la práctica del aborto ocurre y emerge en, por y a través de redes solidarias que se hacen lugar hasta en los ámbitos más adversos*. Los abortos acontecen y las condiciones de legalidad y penalización delimitan las reglas en las que estos se desarrollan.
+
+![](/img/2021-01-13/ive-12.jpg)
+
+Las *personas que recurren a la interrupción voluntaria del embarazo son variadas y abarcan todo el espectro social*. Innumerables estudios cualitativos y cuantitativos, difundidos tanto en el ámbito académico como militante, aluden a la diversidad existente entre quienes abortan respecto a: posición económica, edad, trayectoria escolar y académica, experiencia laboral, zona geográfica habitada, simpatías partidarias, adscripción religiosa, orientación sexual, identidad de género, razones que motivan la decisión, formas de percibir, sentir y nombrar lo que les pasa, etc.
+
+![](/img/2021-01-13/ive-13.jpg)
+
+Existe un conjunto de prácticas, saberes y discursos que impiden o reprenden moralmente la decisión de abortar conformando una penalización social del aborto. La falta de correspondencia entre los marcos que habilitan interrumpir un embarazo (Guía ANP, Fallo FAL, Protocolo ILE)[^4] y las trabas que efectivamente encuentran las personas cuando desean abortar, se relacionan con ese accionar conservador de micro-fuerzas políticas. Se trata de creencias, consejos, intuiciones, interpretaciones, gestos, juicios, reproches y amenazas que sostienen un clima generalizado de desaprobación y cuestionamiento al aborto en nombre de la moral, de la religión, de la ciencia o de un supuesto bien común. Esto genera desaliento, vergüenza, culpa, temor, desconfianza y otras sensaciones de incomodidad o malestar. Teniendo en cuenta que la clandestinidad se sostuvo durante tanto tiempo en esta condena cultural, *la legalización debe ir acompañada de la creación de nuevas formas de narrar y pensar a la interrupción voluntaria del embarazo, profundizando la ya existente despenalización social*. Las líneas de acción deben distanciarse de los discursos que patologizan, culpabilizan o victimizan, sin por ello banalizar la carga que socialmente se le asigna. Es preciso que allí donde había obstaculización y prejuicio se propaguen los espacios de contención que alberguen la multiplicidad, resuelvan las necesidades, habiliten la escucha y la singularidad, comprendan y colaboren sin emitir valoraciones estigmatizantes.
+
+![](/img/2021-01-13/ive-14.jpg)
+
+Todos aquellos abortos que se realizaron en clandestinidad pero de manera segura y cuidada esparcieron la conciencia de que la interrupción del embarazo es una práctica que puede realizarse sin poner en riesgo la salud, la integridad psicológica o la vida. Aquellas imágenes que remiten a charcos de sangre, peligro, tortura, maltrato y bisturíes oxidados nada tienen que ver con experiencias de aborto feministas, populares y autogestionadas desde la organización colectiva y la salud comunitaria. *Muchos abortos medicamentosos, sosteniéndose en tratamientos confiables, indicaciones precisas de acuerdo a protocolos eficaces y compañías afectivas, ensayaron prácticas corporalizadas de autodeterminación*. Acceder a información completa sobre cómo realizarse un aborto (instrucciones, riesgos, alertas, contactos), elegir dónde practicarlo (en casa propia, ajena, prestada), en qué temporalidades (la mañana, la tarde o la noche, en día laborable o feriado), con quién (amistades, pareja, familia, en soledad), junto a cuál otra actividad (ver películas, dormir, caminar, descansar), y junto a qué estrategias para calmar el dolor (ibuprofeno, bolsa de agua caliente, ducha, té de manzanilla), ensancha la libertad y potencia la toma de decisiones responsable y reflexiva en contra de humillaciones unilaterales, sermones correctivos y consejos no solicitados propios de los modelos de control sobre el cuerpo y la salud.
+
+![](/img/2021-01-13/ive-15.jpg)
+
+En definitiva, a lo largo de este tiempo no *luchamos solamente por el reconocimiento legal de una práctica, ni luchamos solamente para exigir el acceso irrestricto de cualquier persona a la misma, sino que luchamos también para disputar las condiciones en que podemos ser capaces de tomar decisiones sobre los procesos que afectan nuestras corporalidades y proyectos de vida que durante tantos siglos han sido custodiados* por poderes estatales, patriarcales, mercantiles y coloniales.
+
+![](/img/2021-01-13/ive-16.jpg)
+
+## 4. Huir de las trampas que ofrece la ley
+
+Por último, hay que permanecer alerta a las implicancias de que la institución estatal sea reconocida como la única propietaria de los saberes y prácticas legítimas respecto al aborto. Una ley de IVE permitirá sin duda avanzar hacia la garantía del acceso al aborto, desclandestinizando la práctica y atacando las lógicas neoliberales que asumen una falsa “igualdad de oportunidades” entre las personas con capacidad de gestar, además de reducir el mercado negro de medicación y eliminar prácticas inseguras y peligrosas. Sin embargo, lo que durante siglos se constituyó como monopolio sobre el control de la salud y sexualidad en manos de la institución médica moderna hegemónica, nos plantea la advertencia de los riesgos que implica designar al estado como único actor capaz de legislar sobre el cuerpo: la consecuente potestad de definir lo que se mantiene y lo que queda por fuera de la ley, y el posible recrudecimiento de la persecución a todo lo que escapa a sus reglamentaciones (antes olvidado y oculto en las zonas grises de la clandestinidad). *Sólo los espacios de organización, contención y acompañamiento podrán hacer de esas zonas grises unas zonas de batalla para correr los límites de lo posible*.
+
+![](/img/2021-01-13/ive-17.jpg)
+
+*Las experiencias compartidas de dolor y alivio fueron las que en toda su multiplicidad ensayaron y construyeron saberes, organización, estrategias de sobrevivencia y mecanismos de autocuidado hasta interpelar, mover y conmover las agendas públicas y mediáticas. Sin duda, serán las mismas relaciones colaborativas, horizontales, diversificadas e insurrectas las que seguirán profundizando el trazado de nuevos caminos que potencien la emancipación y transformación que todavía nos queda por andar*.
+
+-
+
+### Notas al pie:
+
+[^1]: La denominación “cisgénero” es utilizada para hacer referencia a aquellas personas cuya identidad de género y género asignado al nacer coinciden (es decir, no se identifican como transgénero). La utilización de este prefijo (cis) colabora con el acto político de nombrar a las personas “cis” para no suponer su universalidad y evitar con ello marcar solo la excepción a su regla perpetuando actitudes cis-sexistas.    
+
+[^2]: Desde hace años profesionales de la salud comprometidxs por el derecho a decidir garantizan el acceso a interrupciones del embarazo basándose en las normativan que regulan la realización de abortos legales.
+
+[^3]: Sobre este punto vale recordar que, amparándose en la objeción de conciencia y manifestándose en contra la ideología feminista, frente a la promulgación de la Ley Micaela un grupo de profesionales y funcionarixs de Tucumán se opusieron a recibir capacitación sobre violencia de género.
+
+[^4]: En el año 2007 el Ministerio de Salud encargó la redacción de una Guía Técnica para la Atención Integral de los **Abortos No Punibles (ANP)**. Luego de permanecer sin difusión hasta el año 2010, la Guía fue publicada a la página web del Ministerio de Salud y tras anunciarse que tendría el rango de resolución ministerial, comenzó a promoverse su adopción en hospitales públicos. La Guía brindó un respaldo jurídico para que profesionales de la salud puedan garantizar el acceso al aborto y reafirmó que el mismo no es punible en las situaciones mencionadas en el artículo N° 86 del Código Penal. Sin embargo, la existencia de interpretaciones restrictivas sobre el artículo N° 86 continuaron impidiendo el acceso al ANP a jóvenes con embarazos producto de relaciones sexuales no consentidas. Por ello, en el año 2012 la Corte Suprema de Justicia de la Nación (CSJN) aclaró a través del **Fallo “F.A.L. s /medida autosatisfactiva”** que todo embarazo producto de una violación podía ser interrumpido legalmente y exhortó al Estado Nacional y a las jurisdicciones provinciales a que sancionen protocolos hospitalarios que garanticen el acceso al ANP. En el año 2015, el Ministerio de Salud de la Nación actualizó la Guía de Atención de los Abortos No Punibles en base a lo establecido en el fallo de la CSJN. Allí se redactó El Protocolo para la Atención Integral de las Personas con Derecho a la Interrupción Legal del Embarazo **(Protocolo ILE)**, “de aplicación obligatoria en todo el territorio argentino” y cuya práctica debía incluir “a todas las instituciones sanitarias, tanto públicas como privadas”. El protocolo estableció que la Interrupción Legal del Embarazo (ILE) debe ser brindada bajo los mismos parámetros que otros componentes del servicio de salud, respetando los estándares de calidad, accesibilidad, confidencialidad, competencia técnica, rango de opciones disponibles e información científica actualizada. También se incluyó el derecho a recibir la misma atención que mujeres, adolescentes y niñas a los varones trans, adecuándose a la Ley de Identidad de Género.
